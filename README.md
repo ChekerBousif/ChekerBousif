@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning FrontEnd 
 - 💞️ I’m looking to collaborate on  Projects softwear developing
-- 📫 How to reach me  : chakerboussif0@gmail.com / +21622011108
+- 📫 How to reach me  : chakerboussif10@gmail.com / +21622011108
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
